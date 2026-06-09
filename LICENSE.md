@@ -1,4 +1,4 @@
-
+escape waves for lucky blocks updated Scripts offers the most advanced escape waves for lucky blocks Script, with undetectable and auto-upgrade.
 
 
 
